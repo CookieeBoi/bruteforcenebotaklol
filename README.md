@@ -1,0 +1,2 @@
+# bruteforcenebotaklol
+ja nevim uz
